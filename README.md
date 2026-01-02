@@ -65,7 +65,3 @@ Any changes will be reflected in this page with the updated effective date.
 
 For questions about this Privacy Policy, please contact:
 youthumb@proton.me
-
-7. Contact
-
-For questions about this Privacy Policy, please contact:
